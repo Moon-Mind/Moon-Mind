@@ -2,5 +2,4 @@
 
 having fun with code
 
-![image](https://stemettes.org/zine/wp-content/uploads/sites/3/2021/09/giphy-13-1.gif)
-
+![original_b20ddd73307e058a24a09d043938cee8](https://github.com/user-attachments/assets/23ac9003-37ec-4f81-bf74-c57b7bfca7f0)
